@@ -1,7 +1,5 @@
 Joel Sellgren
 
-
-Emelie was here 
-
+Emelie was here
 
 Majid was here
